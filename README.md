@@ -12,9 +12,6 @@
 
 > `not always open to new friends unless im comfortable when being around especially if they are friends with my friend im chill with them`
 
-> `inspired my creation was from a friend they got great designs`
-
-
 
 
 <!--
