@@ -1,15 +1,17 @@
-<img width="420" height="420" alt="image" src="https://github.com/user-attachments/assets/44a09670-9d5d-42ee-95e3-3b250feb81d6" />
+<img width="536" height="480" alt="image" src="https://github.com/user-attachments/assets/93ea2d22-8883-40b6-8920-bf4e3a6b5ea9" /> `art is not mine`
 
-`will update this later rn im just doing some lazy sht intro`
+
+
+`will update this later.`
 
 > `Always in ponytown 24/7 near a friend or my wife that im mostly around with`
 
-
 > `If i dont respond either i just didnt want to be int or im doing other stuff offtabs or making skins`
 
-> `i am multi-fandom and a Multi-shipper but not in poly (no offense...)`
+> `My humor is 16+`
 
-> `I don't support OcxCanon because is just unoriginal and confusing to have an oc having feelings with a existing character`
+
+
 
 <!--
 **Vuzi-Shipper/Vuzi-Shipper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
