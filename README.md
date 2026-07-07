@@ -14,6 +14,11 @@
 
 > `not always open to new friends unless im comfortable when being around especially if they are friends with my friend im chill with them`
 
+> `the ppl i hang with around with` ⬇
+‎
+
+<img width="418" height="314" alt="image" src="https://github.com/user-attachments/assets/cfe695b2-37e0-4fa4-8f4e-9387dd7bbba2" /> `i love them`
+
 
 
 <!--
