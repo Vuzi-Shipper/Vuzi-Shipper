@@ -6,6 +6,8 @@
 
 > `Always in ponytown 24/7 near a friend or my wife that im mostly around with`
 
+> `feel free to int i won't bite and idm a small talk even when im awkward`
+
 > `If i dont respond either i just didnt want to be int or im doing other stuff offtabs or making skins`
 
 > `My humor is 16+`
