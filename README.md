@@ -6,13 +6,15 @@
 
 > `Always in ponytown 24/7 near a friend or my wife that im mostly around with`
 
-> `feel free to int i won't bite and idm a small talk even when im awkward`
+> `feel free to int i won't bite and idm a small talk even when it gets awkward`
 
 > `If i dont respond either i just didnt want to be int or im doing other stuff offtabs or making skins`
 
 > `My humor is 16+`
 
-> `not always open to new friends unless im comfortable when being around especially if they are friends with my friend im chill with them`
+> `not always open to new friends unless im comfortable when being around and especially if they are friends with my friend im chill with them`
+
+> `Free to C+H unless im near my friends or my wife`
 
 <!--
 **Vuzi-Shipper/Vuzi-Shipper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
