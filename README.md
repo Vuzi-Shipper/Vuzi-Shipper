@@ -19,7 +19,7 @@
 
 #                                                           WARNING  .ᐟ ★
 
-`i would love to mention that some of my skin be stolen around lately in md area especially some of my friends skin be stolen with no permission whatsoever it ruin the fun for everyone especially when already seeing ppl taking ideas from pinterest which arent from the original, especially when skin been stolen a lot, people these days just can't be creative on a simple game`
+`i would love to mention that some of my skin be stolen around lately in md area especially some of my friends skin be stolen with no permission whatsoever it ruin the fun for everyone especially when already seeing ppl taking ideas from pinterest which arent from the original, especially when skin been stolen a lot, people these days just can't be creative on a pixel pony game`
 
 <!--
 **Vuzi-Shipper/Vuzi-Shipper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
