@@ -1,5 +1,6 @@
-<img width="536" height="480" alt="image" src="https://github.com/user-attachments/assets/93ea2d22-8883-40b6-8920-bf4e3a6b5ea9" /> `art is not mine`
+<img width="850" height="507" alt="image" src="https://github.com/user-attachments/assets/b387ff61-0783-41d7-84d1-bed2eda9ce62" /> 
 
+ > `i love my vro platonically`
 
 
 `will update this later.`
