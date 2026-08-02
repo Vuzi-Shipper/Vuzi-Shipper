@@ -1,6 +1,6 @@
 <img width="850" height="507" alt="image" src="https://github.com/user-attachments/assets/b387ff61-0783-41d7-84d1-bed2eda9ce62" /> 
 
- > `i love my vro platonically`
+ > `i love my vro sm platonically`
 
 
 `will update this later.`
